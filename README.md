@@ -1,1 +1,1 @@
-# A Matehematics of Consent
+# A Mathematics of Consent
